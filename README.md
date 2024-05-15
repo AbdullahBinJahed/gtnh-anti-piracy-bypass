@@ -1,0 +1,1 @@
+# gtnh-anti-piracy-bypass
